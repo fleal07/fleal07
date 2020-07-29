@@ -2,7 +2,7 @@
 
 Me chamo Luis Felipe Leal, gaúcho de Porto Alegre/Brasil. Trabalho com desenvolvimento Back-End a mais de 15 anos e a menos tempo que isso com Front-End.
 
-Além disso curto muito fazer uma bagunça com as minhas filhas 😁, curtir um jogo do [Grêmio](https://gremio.net) ⚽️ e praticar Jiu-Jitsu.
+Além disso curto muito fazer uma bagunça com as minhas filhas 😁, curtir os jogos do [Grêmio](https://gremio.net) ⚽️ e praticar Jiu-Jitsu.
 
 Você pode falar comigo por aqui!!! 👇
 
